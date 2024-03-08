@@ -8,4 +8,6 @@ Hello, github
 что то непонятное расположение строк
 dhjlt xnj nj gjkexftncz 
 
+вот пеперь понял ошибку
+
 
